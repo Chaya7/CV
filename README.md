@@ -2,11 +2,12 @@
 
 ## Graduated from FLLD in Tunghai university
 
-Mayor in  *Languages* <p>Learned Spanish for three yeas, <p>Japanese for 2 years
+### Mayor in  *Languages* 
+<p>Learned Spanish for three years, <p>Japanese for 2 years
 
 ## Major in GMBA 
 
-### Interested in Business 
+### Interested in *Business* 
 
 in this  __period of time__, I will try to apply for some certifications for my future careers 
 
