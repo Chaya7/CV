@@ -2,7 +2,7 @@
 
 ## Graduated from FLLD in Tunghai university
 
-### Mayor in  *Languages* 
+ Mayor in  *Languages* 
 <p>Learned Spanish for three years, <p>Japanese for 2 years
 
 ## Major in GMBA 
