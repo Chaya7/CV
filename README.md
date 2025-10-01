@@ -1,16 +1,16 @@
 # Chaya
 
-## Graduated from FLLD in Tunghai university
+## Gradated from FLLD in Tunghai university
 
-Mayor in  *Languages* 
-<p>Learned Spanish for three years,
-<p>Japanese for 2 years
+Mayor in *Languages*
+- learned Spanish for three years
+- Japanese for two yeas
 
-## major in GMBA
+## Mayor in GMBA
 
 ### Interested in *Business*
 
-in this  __period of time__, I will try to apply for some certifications for my future careers 
+in this __period of time__, I will apply for some certifications formy future careers
 
-- Prepare for license for __tourist guide__
-- Pass the __B2 Spanish certification__
+- prepare for __license for tourist guide__
+- pass the __B2 Spanish certification__
