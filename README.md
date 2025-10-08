@@ -6,7 +6,7 @@ Mayor in *Languages*
 - learned Spanish for three years
 - Japanese for two yeas
 
-## Mayor in GMBA
+## Major in GMBA
 
 ### Interested in *Business*
 
